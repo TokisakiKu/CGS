@@ -1,0 +1,2 @@
+# CGS
+PLEASE JOIN OUR CLAN!!!
